@@ -5,8 +5,10 @@
 *Here are my Favorite Characters*
 *Falin actually Goated*
 
-![Falin](![dab46d1-38e5e34d-895d-42e3-bc17-407dd72b8afa])
+![Falin](![![image](https://github.com/RCT27STI/app-dev/assets/169653180/80087e41-5fc9-4a57-a22a-a554e580cb6a)
+])
 
 *Izutsumi is Catgirl yes*
 
-![Izutsumi](![f901b47cdee14496cbf049e6dd7037b1.png])
+![Izutsumi](![![image](https://github.com/RCT27STI/app-dev/assets/169653180/e2e9c759-af63-4df0-9372-26cb77de24a5)
+])
